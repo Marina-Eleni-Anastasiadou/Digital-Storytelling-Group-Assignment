@@ -147,14 +147,20 @@
          
        
 H αισθητίκη της ταινίας μας κυρίως στα φυσίκα χρώματα των τόπιων τα όποια τόνιζουμε ελάφρα με την χρήση φίλτρων. Οι αποχρώσεις τους είνια κυρίως ζεστές για τόνησουν την θεματίκη μας.
-         
-     
 
    
+![3d3c9628f69a282523db9e77dcba3e9f](https://github.com/Marina-Eleni-Anastasiadou/Digital-Storytelling-Group-Assignment/assets/100956292/790ec992-5841-4f92-bdc0-287dc3dd7e1b)
+
+ ![Screenshot 2023-05-31 222542](https://github.com/Marina-Eleni-Anastasiadou/Digital-Storytelling-Group-Assignment/assets/100956292/2f5caa58-f006-49d6-9618-24a66147a3e3)
+
+![Screenshot 2023-05-31 222706](https://github.com/Marina-Eleni-Anastasiadou/Digital-Storytelling-Group-Assignment/assets/100956292/52e543a6-70ed-4e0b-bc4e-c40eb6873cc9)
+
          
  <p>
   <strong>9. ΣΚΗΝΙΚΑ </strong>
          </p>      
+         
+         
          
  <p>
   <strong>10. ΠΡΟΥΠΟΛΟΓΙΣΜΟΣ ΠΑΡΑΓΩΓΗΣ ΚΑΙ ΧΡΗΜΑΤΟΔΟΤΗΣΗ</strong>
