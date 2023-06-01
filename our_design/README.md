@@ -224,7 +224,17 @@ H αισθητίκη της ταινίας μας κυρίως στα φυσίκ
    #### Επιτραπέζιο παιχνίδι 
    
    <p> Με την χρήση αυτόυ δόμθηκε ένας μίκρος χαρτής που δέιχνει μερίκα άπο τα μέρη που ταξίδευυαν οι δυο φίλες και απέκτισαν πόλλες άναμηνσεις. Ο συνδιασμός της ταινίας με το παιχνίιδι δίνει την δυνατότητα στον θεατή να κατανόησει το βάθος της σχέσης των δυο κορίτσιων και να ταυτίστει καλύτερα μαζί τους. </p>
+   
+![1685606239473](https://github.com/Marina-Eleni-Anastasiadou/Digital-Storytelling-Group-Assignment/assets/100956292/df95f308-f600-4a1d-b4f8-c65d15462c0c)
          
+![1685606239460](https://github.com/Marina-Eleni-Anastasiadou/Digital-Storytelling-Group-Assignment/assets/100956292/ef7b56e3-0f3b-4e4e-a4dd-8636ac0c0f36)
+
+![1685606239467](https://github.com/Marina-Eleni-Anastasiadou/Digital-Storytelling-Group-Assignment/assets/100956292/4a465bd5-a0df-4ec1-bbb9-2e9ba59b98ee)
+
+![1685606812497](https://github.com/Marina-Eleni-Anastasiadou/Digital-Storytelling-Group-Assignment/assets/100956292/46bd42d3-3593-4443-a05e-3fd280a2be3a)
+
+![1685606812457](https://github.com/Marina-Eleni-Anastasiadou/Digital-Storytelling-Group-Assignment/assets/100956292/52c67a7d-587e-4b59-9e1a-2c8a1903ea7f)
+
          
  <p><strong>16. CASTING</strong>
          </p>    
