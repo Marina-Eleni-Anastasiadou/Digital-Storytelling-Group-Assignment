@@ -235,7 +235,17 @@ H αισθητίκη της ταινίας μας κυρίως στα φυσίκ
 
 </p>    
 <p><strong>18. ΣΚΗΝΕΣ</strong>
-         </p>   
+         
+![1_alli](https://github.com/Marina-Eleni-Anastasiadou/Digital-Storytelling-Group-Assignment/assets/100956292/b85fea84-e8be-4ac6-abb6-67ecfe7545d0)
+![2_alli](https://github.com/Marina-Eleni-Anastasiadou/Digital-Storytelling-Group-Assignment/assets/100956292/f5a1ed55-86fa-45dd-8f4a-9dfc9ad22411)
+![3_alli](https://github.com/Marina-Eleni-Anastasiadou/Digital-Storytelling-Group-Assignment/assets/100956292/5fb992cf-78e0-47af-b13d-57f05b79f7ef)
+![5_alli](https://github.com/Marina-Eleni-Anastasiadou/Digital-Storytelling-Group-Assignment/assets/100956292/4f06c9d7-7a2d-4f00-b8cf-8ae3a4b75a7d)
+![6_alli](https://github.com/Marina-Eleni-Anastasiadou/Digital-Storytelling-Group-Assignment/assets/100956292/d9bc5c3b-c79b-47c8-8923-e27d22bb8ad1)
+
+![4_alli](https://github.com/Marina-Eleni-Anastasiadou/Digital-Storytelling-Group-Assignment/assets/100956292/a705ded8-c9f6-40ab-abb4-45d9e96dc02b)
+
+
+</p>   
  <p><strong>19. EVALUATION</strong>
 <p> Για την ταίνια σιγούρα θα προσπάθουθαμε να είχαμε πιο στάθερα πλάνα ίσως και πιο όμορφα.Έπισης θα θέλαμε αν είχαμε χρόνο να τίαχναμε καλύτερα την ποίοτητα τιυ ήχου της ταίνιας μας κατί το όποιο θα ήταν δύνατον αν είχαμ περίσοοτερο χρόνο και καλύτερο μικρόφονο.
 </p>         
