@@ -155,6 +155,9 @@ H αισθητίκη της ταινίας μας κυρίως στα φυσίκ
 
 ![Screenshot 2023-05-31 222706](https://github.com/Marina-Eleni-Anastasiadou/Digital-Storytelling-Group-Assignment/assets/100956292/52e543a6-70ed-4e0b-bc4e-c40eb6873cc9)
 
+![Στιγμιότυπο οθόνης 2023-06-01 173553](https://github.com/Marina-Eleni-Anastasiadou/Digital-Storytelling-Group-Assignment/assets/100956292/874df5ea-bf50-44a3-b4b0-ebac8435a9fa)
+![Στιγμιότυπο οθόνης 2023-06-01 173630](https://github.com/Marina-Eleni-Anastasiadou/Digital-Storytelling-Group-Assignment/assets/100956292/493ca4fd-ab1e-446b-9936-cbfc706832be)
+![Στιγμιότυπο οθόνης 2023-06-01 173455](https://github.com/Marina-Eleni-Anastasiadou/Digital-Storytelling-Group-Assignment/assets/100956292/ad66d578-d65e-4526-94c3-e08840c51e08)
 
          
  <p>
@@ -224,18 +227,17 @@ H αισθητίκη της ταινίας μας κυρίως στα φυσίκ
    #### Επιτραπέζιο παιχνίδι 
    
    <p> Με την χρήση αυτόυ δόμθηκε ένας μίκρος χαρτής που δέιχνει μερίκα άπο τα μέρη που ταξίδευυαν οι δυο φίλες και απέκτισαν πόλλες άναμνησεις. Ο συνδιασμός της ταινίας με το παιχνίιδι δίνει την δυνατότητα στον θεατή να κατανόησει το βάθος της σχέσης των δυο κορίτσιων και να ταυτίστει καλύτερα μαζί τους. </p>
-   
-![1685606239473](https://github.com/Marina-Eleni-Anastasiadou/Digital-Storytelling-Group-Assignment/assets/100956292/df95f308-f600-4a1d-b4f8-c65d15462c0c)
-         
-![1685606239460](https://github.com/Marina-Eleni-Anastasiadou/Digital-Storytelling-Group-Assignment/assets/100956292/ef7b56e3-0f3b-4e4e-a4dd-8636ac0c0f36)
+ 
+ ![1685606812497](https://github.com/Marina-Eleni-Anastasiadou/Digital-Storytelling-Group-Assignment/assets/100956292/7ba2018c-2d99-474f-b762-bb5a36ac0438)
+![1685606812457](https://github.com/Marina-Eleni-Anastasiadou/Digital-Storytelling-Group-Assignment/assets/100956292/aaa48e9b-8197-484f-82ca-843c740b5443)
 
-![1685606239467](https://github.com/Marina-Eleni-Anastasiadou/Digital-Storytelling-Group-Assignment/assets/100956292/4a465bd5-a0df-4ec1-bbb9-2e9ba59b98ee)
+![1685638752703](https://github.com/Marina-Eleni-Anastasiadou/Digital-Storytelling-Group-Assignment/assets/100956292/40d83f3f-e01f-425e-960a-fe25cd9b1ced)
+![1685638752687](https://github.com/Marina-Eleni-Anastasiadou/Digital-Storytelling-Group-Assignment/assets/100956292/37923eef-ece5-4b92-ba63-293768083adb)
 
-![1685606812497](https://github.com/Marina-Eleni-Anastasiadou/Digital-Storytelling-Group-Assignment/assets/100956292/46bd42d3-3593-4443-a05e-3fd280a2be3a)
+![1685638752696 (1)](https://github.com/Marina-Eleni-Anastasiadou/Digital-Storytelling-Group-Assignment/assets/100956292/f2c9962b-86a9-4935-a261-7701010ec486)
+![1685639565740](https://github.com/Marina-Eleni-Anastasiadou/Digital-Storytelling-Group-Assignment/assets/100956292/fc8cfa88-e4ee-48d2-9a97-544099bdb38e)
 
-![1685606812457](https://github.com/Marina-Eleni-Anastasiadou/Digital-Storytelling-Group-Assignment/assets/100956292/52c67a7d-587e-4b59-9e1a-2c8a1903ea7f)
 
-         
  <p><strong>16. CASTING</strong>
          </p>    
 <p> Με  βάση όσα έχουν άναφερθει παραπάνω ,δεν υπάρχει casting </p>        
