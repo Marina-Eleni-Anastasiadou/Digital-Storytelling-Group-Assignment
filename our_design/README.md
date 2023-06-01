@@ -201,6 +201,7 @@ H αισθητίκη της ταινίας μας κυρίως στα φυσίκ
 - Χάρακες 
 + Πολύχρωμα χαρτόνια
 * Ζάρια
+- Πινέλα
 
  
   
@@ -264,5 +265,10 @@ H αισθητίκη της ταινίας μας κυρίως στα φυσίκ
 <p>Όσον αφόρα το επιτράπεζιο θα θέλεμα ίδανικα να το φτλαιχναμε πιο όμορφα δίοτι είχαμε πρόβλημε με τον χρόνο.
 </p>   
     <p><strong>20. ΠΗΓΕΣ</strong>
-         </p>        
+         </p>  
+         
+[Resource link]( https://github.com/merkourisa/Digital-Storytelling-Group-Assignment/blob/main/Transmedia/transmedia_project_design.PDF).
+         
+[Resource link]( https://github.com/Marina-Eleni-Anastasiadou/Digital-Storytelling-Group-Assignment/blob/main/our_design/dpsdXXXXX/Team%2066-%20%CE%97%20%CE%BF%CE%B4%CE%BF%CE%BD%CF%84%CF%8C%CE%B2%CE%BF%CF%85%CF%81%CF%84%CF%83%CE%B1%20design%20document.pdf ).
+        
 </p>
