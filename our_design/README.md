@@ -422,9 +422,19 @@ H αισθητίκη της ταινίας μας κυρίως στα φυσίκ
 <p>   Για την ταινία σίγουρα θα προσπαθούσαμε να είχαμε πιο σταθερά πλάνα ίσως και πιο όμορφα. Επίσης θα θέλαμε αν είχαμε χρόνο να φτιάχναμε καλύτερα την ποιότητα του ήχου της ταινίας μας κάτι το όποιο θα ήταν δυνατόν αν είχαμε περίστερο χρόνο και καλύτερο μικρόφωνο. Για την αρχική σκηνή καθώς βάλαμε τον τίτλο πάγωσε το βίντεο θα θέλαμε να μην γινόταν αυτό.</p>
 <p>Όσον αφόρα το επιτράπεζιο θα θέλεμα ίδανικα να το φτίαχναμε πιο όμορφα άλλα είχαμ πρόβλημα με το χρόνικο περίθωριο.
 </p>   
-    <p><strong>20. ΠΗΓΕΣ</strong>
+
+![Screenshot (96)](https://github.com/Marina-Eleni-Anastasiadou/Digital-Storytelling-Group-Assignment/assets/100956292/3984597e-f9eb-4a26-a0e1-05de31fad12d)
+
+![Screenshot (112)](https://github.com/Marina-Eleni-Anastasiadou/Digital-Storytelling-Group-Assignment/assets/100956292/220a1da9-a564-48b1-b668-b813ebc1ea53)
+
+<p>Για το τέλος όπως φαίνεται και στις δύο φωτόγραφιες,η ταινία δεν έχει άνεβει άκομα στο youtube, μεχρί το βρασύ θα έχει άνεβει.Την περίμενουμε να άνεβει 2 μέρες. </p>
+
+<p>
+  <strong>20. ΠΗΓΕΣ</strong>
          </p>  
          
+[Movie Link](https://youtu.be/l5qGuRYPptI)
+
 [Resource link]( https://github.com/merkourisa/Digital-Storytelling-Group-Assignment/blob/main/Transmedia/transmedia_project_design.PDF).
          
 [Resource link]( https://github.com/Marina-Eleni-Anastasiadou/Digital-Storytelling-Group-Assignment/blob/main/our_design/dpsdXXXXX/Team%2066-%20%CE%97%20%CE%BF%CE%B4%CE%BF%CE%BD%CF%84%CF%8C%CE%B2%CE%BF%CF%85%CF%81%CF%84%CF%83%CE%B1%20design%20document.pdf ).
